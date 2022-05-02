@@ -1,0 +1,5 @@
+- 👋 Minal aidin wal faizin
+- 👀 Mohon maaf
+- 🌱 Lahir dan bathin
+- 💞️ Adakah buras
+- 📫 Atau doi...
